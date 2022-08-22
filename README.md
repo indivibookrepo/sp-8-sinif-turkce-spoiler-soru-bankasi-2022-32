@@ -1,0 +1,1 @@
+# sp-8-sinif-turkce-spoiler-soru-bankasi-2022-32
